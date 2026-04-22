@@ -39,7 +39,7 @@ Wealth Management · Private Banking · RegTech · KYC · Financial Compliance
 ---
 
 📫 **Contact**  
-LinkedIn: linkedin.com/in/jerry-tse-jui-chen 
+LinkedIn: www.linkedin.com/in/jerry-tse-jui-chen
 
 Email: tsjerrychen@gmail.com
 
